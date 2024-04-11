@@ -5,3 +5,4 @@
 - Email: reniercoetzer35@gmail.com or reniercoetzer75@gmail.com
 - Instagram: https://www.instagram.com/renier_coetzer?igsh=a2g2czd0d3I0OG9n
 - LinkedIn: www.linkedin.com/in/renier-coetzer-502921250
+- CodeCademy: https://www.codecademy.com/profiles/mega4766391050
